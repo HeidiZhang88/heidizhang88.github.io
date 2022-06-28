@@ -1,5 +1,9 @@
 ## Heidi Zhang's Home Page
 
+Personal:
+
+[LinkedIn](https://www.linkedin.com/in/heidi-zhang-55b27722a/)
+
 
 Religion:
 
@@ -12,6 +16,11 @@ Education:
 
 [TianJin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
 [(English)](http://www.tjfsu.edu.cn/bindex)
+
+
+Professional:
+
+
 
 
 Favorite Places:
