@@ -3,6 +3,8 @@
 
 Education:
 
+[Boise State University](https://www.boisestate.edu)
+
 [Tian Jin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
 
 [Tian Jin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex/)
