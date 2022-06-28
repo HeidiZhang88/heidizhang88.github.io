@@ -7,14 +7,25 @@ Education:
 
 [TianJin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
 
-[TianJin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex/)
+[TianJin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex)
 
 
 Favorite Places:
 
-[Tianjin Grand Theater](https://www.sbp.de/en/project/tianjin-grand-theater/)
+[Tianjin Grand Theater](https://www.sbp.de/en/project/tianjin-grand-theater)
 
 [Tianjin Grand Theater](https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
+
+[Carmel-by-the-Sea](https://www.carmelcalifornia.com)
+
+
+Favorit Sport (just spector):
+
+[MotoGP](https://www.motogp.com)
+
+
+
+
 
 
 
