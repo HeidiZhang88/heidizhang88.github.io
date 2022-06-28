@@ -25,7 +25,9 @@ Professional:
 
 Favorite Places:
 
-[The Ritz!](https://www.ritzcarlton.com/en/hotels/china/tianjin)
+[River Side 66 Mall (TianJin)](https://www.kpf.com/projects/riverside-66)
+
+[The Ritz! (TianJin)](https://www.ritzcarlton.com/en/hotels/china/tianjin)
 
 [Tianjin Grand Theater](https://www.sbp.de/en/project/tianjin-grand-theater)
 [(wiki)](https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
