@@ -12,9 +12,9 @@ Education:
 
 Favorite Places:
 
-[Tianjin Grand Theater] (https://www.sbp.de/en/project/tianjin-grand-theater/)
+[Tianjin Grand Theater](https://www.sbp.de/en/project/tianjin-grand-theater/)
 
-[Tianjin Grand Theater] (https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
+[Tianjin Grand Theater](https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
 
 
 
