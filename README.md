@@ -13,11 +13,10 @@ Education:
 Favorite Places:
 
 [Tianjin Grand Theater](https://www.sbp.de/en/project/tianjin-grand-theater)
-
-[Tianjin Grand Theater](https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
+[wiki](https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
 
 [Carmel-by-the-Sea](https://www.carmelcalifornia.com)
-
+[wiki](https://en.wikipedia.org/wiki/Carmel-by-the-Sea,_California)
 
 Favorit Sport (just spector):
 
