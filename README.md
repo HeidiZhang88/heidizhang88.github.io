@@ -39,7 +39,7 @@
 [(wiki)](https://en.wikipedia.org/wiki/Coeur_d%27Alene,_Idaho)
 
 
-**Favorit Sport (just spector):**
+**Favorit Sport (just spectator):**
 
 [MotoGP](https://www.motogp.com)
 
