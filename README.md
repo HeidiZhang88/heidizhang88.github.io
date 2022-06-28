@@ -1,16 +1,16 @@
 ## Heidi Zhang's Home Page
 
-#### Personal:
+**Personal:**
 
 **[LinkedIn](https://www.linkedin.com/in/heidi-zhang-55b27722a/)**
 
 
-### Religion:
+**Religion:**
 
 [The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org)
 
 
-# Education:
+**Education:**
 
 [Boise State University](https://www.boisestate.edu)
 
@@ -18,12 +18,12 @@
 [(English)](http://www.tjfsu.edu.cn/bindex)
 
 
-Professional:
+**Professional:**
 
 [Beta Alpha Psi](https://www.boisestate.edu/cobe-betaalphapsi/officers-and-contact-information/)
 
 
-Favorite Places:
+**Favorite Places:**
 
 [River Side 66 Mall (TianJin)](https://www.kpf.com/projects/riverside-66)
 
@@ -39,7 +39,7 @@ Favorite Places:
 [(wiki)](https://en.wikipedia.org/wiki/Coeur_d%27Alene,_Idaho)
 
 
-Favorit Sport (just spector):
+**Favorit Sport (just spector):**
 
 [MotoGP](https://www.motogp.com)
 
