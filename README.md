@@ -5,9 +5,17 @@ Education:
 
 [Boise State University](https://www.boisestate.edu)
 
-[Tian Jin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
+[TianJin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
 
-[Tian Jin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex/)
+[TianJin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex/)
+
+
+Favorite Places:
+
+[Tianjin Grand Theater] (https://www.sbp.de/en/project/tianjin-grand-theater/)
+
+[Tianjin Grand Theater] (https://en.wikipedia.org/wiki/Tianjin_Grand_Theatre)
+
 
 
 
