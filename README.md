@@ -20,7 +20,7 @@ Education:
 
 Professional:
 
-
+[Beta Alpha Psi](https://www.boisestate.edu/cobe-betaalphapsi/officers-and-contact-information/)
 
 
 Favorite Places:
@@ -37,6 +37,7 @@ Favorite Places:
 
 [Coeur d'Alene](https://coeurdalene.org)
 [(wiki)](https://en.wikipedia.org/wiki/Coeur_d%27Alene,_Idaho)
+
 
 Favorit Sport (just spector):
 
