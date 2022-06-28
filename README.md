@@ -1,6 +1,6 @@
 ## Heidi Zhang's Home Page
 
-### Personal:
+#### Personal:
 
 **[LinkedIn](https://www.linkedin.com/in/heidi-zhang-55b27722a/)**
 
