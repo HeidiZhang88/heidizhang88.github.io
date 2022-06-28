@@ -35,6 +35,9 @@ Favorite Places:
 [Carmel-by-the-Sea](https://www.carmelcalifornia.com)
 [(wiki)](https://en.wikipedia.org/wiki/Carmel-by-the-Sea,_California)
 
+[Coeur d'Alene](https://coeurdalene.org)
+[(wiki)](https://en.wikipedia.org/wiki/Coeur_d%27Alene,_Idaho)
+
 Favorit Sport (just spector):
 
 [MotoGP](https://www.motogp.com)
