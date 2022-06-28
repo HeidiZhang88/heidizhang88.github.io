@@ -2,7 +2,7 @@
 
 ### Personal:
 
-[LinkedIn](https://www.linkedin.com/in/heidi-zhang-55b27722a/)
+**[LinkedIn](https://www.linkedin.com/in/heidi-zhang-55b27722a/)**
 
 
 ### Religion:Religion:
@@ -10,7 +10,7 @@
 [The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org)
 
 
-Education:
+# Education:
 
 [Boise State University](https://www.boisestate.edu)
 
