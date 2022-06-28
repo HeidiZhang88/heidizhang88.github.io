@@ -25,7 +25,7 @@
 
 **Favorite Places:**
 
-[River Side 66 Mall (TianJin)](https://www.kpf.com/projects/riverside-66)
+[Riverside 66 Mall (TianJin)](https://www.kpf.com/projects/riverside-66)
 
 [The Ritz! (TianJin)](https://www.ritzcarlton.com/en/hotels/china/tianjin)
 
