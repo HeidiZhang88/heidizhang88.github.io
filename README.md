@@ -3,7 +3,7 @@
 
 Religion:
 
-[The Church of Jesus Christ of Latter-day Saints]https://www.churchofjesuschrist.org
+[The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org)
 
 
 Education:
