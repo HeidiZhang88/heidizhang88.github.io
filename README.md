@@ -44,9 +44,7 @@
 [MotoGP](https://www.motogp.com)
 
 
-
-§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§§
-
+✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️ ✝️
 
 
 ![Jesus](https://www.churchofjesuschrist.org/bc/content/ldsorg/church/news/2020/05/19/580_1200x675size-English.jpg)
