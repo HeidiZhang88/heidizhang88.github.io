@@ -11,8 +11,7 @@ Education:
 [Boise State University](https://www.boisestate.edu)
 
 [TianJin Foreign Studies University (Chinese)](http://www.tjfsu.edu.cn)
-
-[TianJin Foreign Studies University (English)](http://www.tjfsu.edu.cn/bindex)
+[(English)](http://www.tjfsu.edu.cn/bindex)
 
 
 Favorite Places:
